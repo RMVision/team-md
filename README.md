@@ -19,4 +19,4 @@
 
 [冈萨雷斯电子书籍](https://pan.baidu.com/s/1DMmCgIGrVajC0V8V19tz2g) (密码：5t7a  )
 
-[深度学习的关于视觉的概述](链接：https://pan.baidu.com/s/1xuiSejaHvTgc1t-dvMEI8A ) (密码：1ehe)
+[深度学习的关于视觉的概述](https://pan.baidu.com/s/1xuiSejaHvTgc1t-dvMEI8A ) (密码：1ehe)
